@@ -1,1 +1,0 @@
-# vincesmandres.github.io
